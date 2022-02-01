@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Lunaxcx or Kyo, both acceptable
+- 👀 I’m interested in reding books, playing videogames and more
+- 🌱 I’m currently learning Operation Manager for nutrition and supply
+- 📫 How to reach me, Discord: Kyoya #1099
